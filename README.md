@@ -1,2 +1,2 @@
 # LinuxHalusky
-Pornhub
+BLASKO SMRDI
